@@ -1,1 +1,1 @@
-EGO
+EGO Elliot
